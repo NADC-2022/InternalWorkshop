@@ -11,8 +11,8 @@
 * [Slide Presentasi](https://docs.google.com/presentation/d/1FZAsT499M3PQZtxzvu4H7KsoZmwUwhoDTK9dl7QAQHk/edit?usp=sharing)
 
 ## Pertemuan 3
-* [Rekaman](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-* [Slide Presentasi](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+* [Rekaman](https://drive.google.com/file/d/1n3YhczRgQCGHPUx1e_2UmoIcnlXNPVTL/view?usp=sharing)
+* [Slide Presentasi](https://drive.google.com/file/d/1-Txfjvl7m3enTgMFVKF875DHEBEa3Fmz/view?usp=sharing)
 
 ## Pertemuan 4
 * [Rekaman](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
